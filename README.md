@@ -1,3 +1,3 @@
 ### ggjj321 (≧ڡ≦*)
 
-NTUT CSIE senior student
+NTU CS AI MS student
